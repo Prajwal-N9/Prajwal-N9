@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am engineering student. 5th semester artificial intelligence and data science branch. <br>
+I am Engineering Student. 5th semester Artificial Intelligence And Data Science Branch. <br>
 
 
 ## 🌐 Socials:
